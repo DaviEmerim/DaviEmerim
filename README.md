@@ -1,0 +1,7 @@
+- 👋 Hey! I'm @DaviEmerim
+- 👀 I’m a baseball enthusiast and a poet
+- 🌱 I’m currently learning how to program
+- 💞️ My current goals are creating websites and working online
+- 📫 You can reach me on FB, Insta or X by searching "Davi Emerim"
+- 😄 Pronouns: He/him
+- ⚡ Fun fact: I 'm brazilian but I'm terrible at soccer hahahah
